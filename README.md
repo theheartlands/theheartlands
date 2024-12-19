@@ -15,7 +15,7 @@ i'm kinda like if a girl was a grandpa (hosea matthews). dutch van der linde... 
 i'm not on here very often so i'm not very familiar with the "culture" or whatever... _you are always free to talk to me_ if we share interests! in fact i encourage it, even if i'm with my friends! i make kys/kms jokes and typically don't use tonetags, but if you use them i will match that. i am 19, so i would prefer if -16 did not int!
 
 history major and #1 billy joel fan. currently hyperfixated on __red dead redemption 2__, grand theft auto V, and breaking bad / better call saul.
-[straw.page](https://silverdollar.straw.page/) ☆ [carrd](https://sharpshooter.ju.mp/#) ☆ [kinlist](https://rentry.co/theheartland)
+<br> [straw.page](https://silverdollar.straw.page/) ☆ [carrd](https://sharpshooter.ju.mp/#) ☆ [kinlist](https://rentry.co/theheartland)
 
 art [credits](https://www.tumblr.com/maturiin)
 
