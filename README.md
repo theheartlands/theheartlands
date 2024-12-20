@@ -10,7 +10,7 @@
 
 
 ### ALEX.ᐟ or 𝘤𝘦𝘴𝘢𝘳𝘦 
-i'm kinda like if a girl was a grandpa (hosea matthews). dutch van der linde... 𝓱𝓶𝓾💋
+i'm kinda like if a girl was a grandpa (hosea matthews). dutch van der linde... 𝓱𝓶𝓾.. 🌹
 
 i'm not on here very often so i'm not very familiar with the "culture" or whatever... _you are always free to talk to me_ if we share interests! in fact i encourage it, even if i'm with my friends! i make kys/kms jokes and typically don't use tonetags, but if you use them i will match that. i am 19, so i would prefer if -16 did not int!
 
